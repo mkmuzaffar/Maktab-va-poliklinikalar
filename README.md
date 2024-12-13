@@ -1,0 +1,2 @@
+# Maktab-va-poliklinikalar
+Toshkent
